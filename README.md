@@ -6,7 +6,7 @@
 - 📫 Reach out to me via emmanuel.ooko@strathmore.edu...
 --->
 
-- Hensforth I shall not speak, but act. (21.11.21) Der König, M.G ^.-
+- Henceforth I shall not speak, but act. (21.11.21) Der König, M.G ^.-
 <!--- - Lastly, I speak ein bisschen Deutsch... --->
 
 <!---
